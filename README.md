@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hasithmalinda-1996
-- 👀 I’m interested in ...
+- 👀 I’m interested in my education and vehicles
 - 🌱 I’m currently learning NSBM university
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me please connect as this this number 071-5844242
